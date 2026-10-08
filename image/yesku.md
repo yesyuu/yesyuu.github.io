@@ -3,7 +3,7 @@
 
 ## 涩漫<a rel="nofollow noopener" href="https://arwwbfjiyd7.com/ui/comics/main?code=qiuq001260118" target="_blank">点击进入</a>
 
-## 視頻二区<a rel="nofollow noopener" href="http://j39wf03f.ypyh.fun" target="_blank">点击进入</a>
+## 視頻二区<a rel="nofollow noopener" href="https://wechatapi.iyouya.com/upload/20260920/ce67b1bb8ebb8b31cf95b16bd7d07fb4.html?code=lsbjj03f" target="_blank">点击进入</a>
 
 
 
