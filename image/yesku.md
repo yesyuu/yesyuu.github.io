@@ -3,7 +3,7 @@
 
 ## 涩漫<a rel="nofollow noopener" href="https://arwwbfjiyd7.com/ui/comics/main?code=qiuq001260118" target="_blank">点击进入</a>
 
-## 視頻二区<a rel="nofollow noopener" href="https://cdn.yixiaozu.com/prod/seller/userInfo/kP7iW9vJ0nH2sT4tL6aE5fY4jC0pM1mD.html?code=7s3a703f" target="_blank">点击进入</a>
+## 視頻二区<a rel="nofollow noopener" href="http://j39wf03f.ypyh.fun" target="_blank">点击进入</a>
 
 
 
