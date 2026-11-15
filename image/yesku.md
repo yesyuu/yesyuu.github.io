@@ -2,7 +2,7 @@
 
 ## 女生宿舍约泡<a rel="nofollow noopener" href="https://bdznlpw.com.cn/woE/KG3K/4ba/?SV=2pzp0-y_3wv4v1h_jvt/41njLpFs8&t=1794674704686" target="_blank">点击进入</a>
 
-## 視頻二区<a rel="nofollow noopener" href="https://oss.shouchezhuanjia.com/open/20260714/2a874995f8343ee880ec58ca01cd285c.html?code=cbvs803f" target="_blank">点击进入</a>
+## 視頻二区<a rel="nofollow noopener" href="http://xyaw65.wwyc38.bdcdn.zjyxqb.cn/zz/mkdg61?CTzz" target="_blank">点击进入</a>
 
 
 
